@@ -1,2 +1,0 @@
-# Projek ASAT
-Projek Akhir
